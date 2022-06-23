@@ -1,1 +1,0 @@
-# thggdx.github.io
